@@ -1,4 +1,1 @@
-yyq is sb /n\n
-yyq is big sb
-yyq is sb /n\n
-yyq is realy big sb
+生如蝼蚁当立鸿鹄之志，命薄如纸应有不屈之心
